@@ -1,0 +1,50 @@
+
+
+
+
+[Создание целевых страниц, которые конвертируются, - непростая задача. Вот наш снимок из 10 примеров целевых страниц с удивительным UX](https://www.justinmind.com/blog/10-landing-page-examples-with-awesome-ux/)
+
+
+
+[Подъемные потоки благодаря эффективному дизайну страницы посадки](https://www.formstack.com/the-anatomy-of-a-perfect-landing-page)
+
+
+
+[6 советов по поисковым окнам прототипов для лучшей навигации по пользовательскому интерфейсу](https://www.justinmind.com/blog/6-tips-on-prototyping-search-boxes-for-better-ui-navigation/)
+
+
+
+[**Новый пользовательский интерфейс разработчика, обновленный опыт интеграции Sketch и многое другое**](https://www.justinmind.com/blog/wireframe-tool-prototyper-8-0-0/)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
